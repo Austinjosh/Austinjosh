@@ -2,7 +2,9 @@
 - 👀 I’m interested in learning, gaming and exploring the world more of  a tech enthusiast with new ideas 
 - 🌱 I’m currently learning Social Media Manager, Virtual Assistant, UX and UI design 
 - 💞️ I’m looking to collaborate on Social Media Manager 
-- 📫 How to reach me on WhatsApp or Telegram +234814627824
+- 📫 How to reach me on WhatsApp or Telegram +234814627824,
+- https://www.instagram.com/madepappi?igsh=ejFuamNqbWptZmwx
+- https://twitter.com/madepappi/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 😁 I'm a guy who's committed with lots of vision and i keep to time. i enjoy putting smiles 😁 on people fac✨ 
 
